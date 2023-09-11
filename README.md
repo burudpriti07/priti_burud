@@ -1,1 +1,0 @@
-# priti_burud
